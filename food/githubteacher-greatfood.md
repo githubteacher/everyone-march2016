@@ -8,9 +8,17 @@
 - Shrimp Tempura Roll (Blue Sushi)
 - Gluten Free Vanilla Cupcake (Jones Brothers Cupcakes) *** Won Cupcake war on Food Network
 
-### Aksarben Area
+### Aksarben Village
 
-#### Mai Thai 
+#### Mai Thai
 - Green Curry Soup
 - Pad Thai
 - Thai Tea (*** Uber Favorite)
+
+#### Sam's Pizza
+
+### Activities
+
+- Crossfit Hydro
+- Weekly Farmers Market
+- University of Nebraska Omaha Campus
