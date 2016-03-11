@@ -4,4 +4,4 @@
 
 - Lobster/Asparagus Soup (801 Chophouse)
 - Shrimp Tempura Roll (Blue Sushi)
-- Gluten Free Vanilla Cupcake (Jones Brother Cupcakes) *** Won Cupcake war on Food Network
+- Gluten Free Vanilla Cupcake (Jones Brothers Cupcakes) *** Won Cupcake war on Food Network
